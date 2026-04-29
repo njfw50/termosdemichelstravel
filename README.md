@@ -1,2 +1,2 @@
 # termosdemichelstravel
-Termos de Privacidade
+Privacy Terms
