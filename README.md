@@ -1,2 +1,2 @@
-# termosdemichelstravel
+# michelstravel terms
 Privacy Terms
